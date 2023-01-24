@@ -1,4 +1,4 @@
-# Hi I'm Aether or Donut I don't fuckin care what you call me as long as it isnt racist lmao
+# Hi I'm Aether or Donut I don't fuckin care what you call me as long as it isnt racist or a r worded mound of flesh lmao
 I code and Compose
 # Unless I know you, I won't work on your shit.
 
