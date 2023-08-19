@@ -1,12 +1,16 @@
-# Hi donut here
-I compose mostly for fun, but also for some other shit like PT Mods or SM64 Mods.
+# hello i am donut i am awrsome
 
 ![STAN](https://user-images.githubusercontent.com/98617712/212485583-0e82dade-c2a0-4c68-b235-8127bb424eec.png)
 
 
-# uhhh i used to do fnf i guess
+# i play rayman
 
-(the game is boring please if you're reading this its been 3 years schlawg)
+thats it maybe
+
+
+# RABBIDS KILLED ME IN 1999
+
+I AM THE RAVING RABBIDS
 
 DON POLLO FOREVER
 
