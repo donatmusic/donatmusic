@@ -1,16 +1,9 @@
 # hello i am donut i am awrsome
 
-![STAN](https://user-images.githubusercontent.com/98617712/212485583-0e82dade-c2a0-4c68-b235-8127bb424eec.png)
+![STAN](https://user-images.githubusercontent.com/98617712/212485583-0e82dade-c2a0-4c68-b235-8127bb424eec.png) this is my friend stanley
 
 
-# i play rayman
-
-thats it maybe
-
-
-# RABBIDS KILLED ME IN 1999
-
-I AM THE RAVING RABBIDS
+#me music and play game!
 
 DON POLLO FOREVER
 
